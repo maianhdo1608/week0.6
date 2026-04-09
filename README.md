@@ -1,0 +1,1 @@
+[Xem Google Sheets Titanic](https://docs.google.com/spreadsheets/d/1hl2i8XZvP9pix8kKlBFCysqKN4uY0RJkPgvAq_R9on4/edit?usp=sharing)
